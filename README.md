@@ -1,0 +1,2 @@
+# tiny
+Amateur of everything.
